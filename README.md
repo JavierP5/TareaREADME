@@ -11,4 +11,5 @@ _millón y medio de personas a base de ASMR:_
 _"Hay psicólogos que lo aconsejan"_  
 ~Nacida en Sevilla y afincada en Burdeos, esta joven es la española más popular en el terreno del ASMR~  
 ~El ASMR produce una extraña sensación de hormigueo en el cuero cabelludo, el cuello y en la parte superior de la espalda.~
-
+[PUTIN]
+(https://media.diarioversionfinal.com/wp-content/uploads/2017/02/VladimirPut%C3%ADn-RusiaYEEUU-Versi%C3%B3nFinal.jpg)
